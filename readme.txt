@@ -1,0 +1,3 @@
+bankai!
+this is bankai
+
